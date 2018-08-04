@@ -1,1 +1,0 @@
-# Demetyesilbas.github.io
